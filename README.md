@@ -6,6 +6,6 @@
 
 3️⃣ I'm still learning to be specialized on the 3Cs of game development.
 
-🛠️ All the work I did and do are on my [Website](https://hugo-guerquin.com/).
+🛠️ All my work past and present are on my [Website](https://hugo-guerquin.com/).
 
 🖋️ Feel free to message me on [Twitter](https://twitter.com/HGuerquin) or on Discord --> Possessium#0619 , I reply fast !
